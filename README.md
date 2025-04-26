@@ -7,6 +7,8 @@ Publication Year: 2025
 
 Formats: Ebook, Paperback, Hardcover
 
+Link: https://www.amazon.com/dp/B0F3P9L2V5
+
 
 🌟 About the Book
 "Finding Purpose & Dharma in the 21st Century" is a heartfelt exploration into the timeless wisdom of Dharma and how it resonates with the complexities of our modern lives. Bridging ancient philosophies with contemporary realities, this book invites readers to reflect, realign, and rediscover their true life path.
