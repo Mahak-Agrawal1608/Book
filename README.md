@@ -1,8 +1,12 @@
 # Book
 📚 _**Finding Purpose & Dharma in the 21st Century**_
+
 Author: Mahak Agrawal
+
 Publication Year: 2025
+
 Formats: Ebook, Paperback, Hardcover
+
 
 🌟 About the Book
 "Finding Purpose & Dharma in the 21st Century" is a heartfelt exploration into the timeless wisdom of Dharma and how it resonates with the complexities of our modern lives. Bridging ancient philosophies with contemporary realities, this book invites readers to reflect, realign, and rediscover their true life path.
